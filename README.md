@@ -1,4 +1,4 @@
-Studing in programming by day, Tired at night.
+Studying in programming by day, Tired at night.
 
 Hoping to possibly make interesting stuff
 
