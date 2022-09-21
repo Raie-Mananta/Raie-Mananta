@@ -1,1 +1,5 @@
-![FRQl-3kWUAQSyty](https://user-images.githubusercontent.com/99699041/191450167-b40fcb0f-31a7-4053-84ad-d18788093172.jpg)
+Studing in programming by day, Tired at night.
+
+Hoping to possibly make interesting stuff
+
+![00797](https://user-images.githubusercontent.com/99699041/191450373-dfe2de08-871a-47da-b19b-6a407930e32a.gif)
